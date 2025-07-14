@@ -1,1 +1,0 @@
-# Perkenalan-diri-Nando-
